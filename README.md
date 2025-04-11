@@ -34,3 +34,7 @@ Recently, innovative Google classrooms have become a popular medium for the stud
 So, classrooms need attention from the school authorities and textbooks units to make the topics of discussions appropriate and interesting enough for the students.
 
 Daily Sun For all latest news, follow the Daily Sun's Google News channel. 
+
+
+https://www.edailysun.com/home/displaypage/news_2016-06-05_7_19_b
+
